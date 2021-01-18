@@ -1,0 +1,3 @@
+Super green soup
+
+This nutritious soup is quick and easy to make and features great ingredients for detoxing and deansing. The addition of garlic, leek and onion also means that this soup has the immune boosting benefits of being antibacterial and antiviral. As with most soups. It will taste better the next day when all the flavours have had time to mingle together. Make extra and freeze in smaller batches
